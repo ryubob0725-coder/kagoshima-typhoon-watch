@@ -1,0 +1,1 @@
+# kagoshima-typhoon-watch
